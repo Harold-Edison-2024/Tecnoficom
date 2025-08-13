@@ -1,2 +1,0 @@
-# Tecnoficom
-Imagen
